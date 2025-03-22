@@ -1,2 +1,2 @@
 # eyesofmine.media
-Different Stuff &amp; Things that i
+Different stuff &amp; things that I try...
